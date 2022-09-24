@@ -1,0 +1,2 @@
+# gedikk
+Areoinsta mavi tik
